@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **chirichapalagousepeera@gmail.com**
 
-- 📄 Know about my experiences https://drive.google.com/file/d/1-bd4kxn86BVL3rx-pUELDbbLp6E8h0aR/view?usp=drive_link
+- 📄 Know about my experiences https://drive.google.com/file/d/18OgE-LAv2gQ2PPkwQL_iie8R0ZH1Yxqv/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
