@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **JAVA MYSQL**
 
-- 💬 Ask me about **JAVA MYSQL HTML CSS**
+- 💬 Ask me about **JAVA MYSQL HTML CSS POWERBI C**
 
 - 📫 How to reach me **chirichapalagousepeera@gmail.com**
 
